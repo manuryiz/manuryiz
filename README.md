@@ -8,3 +8,4 @@
 #⃝ ֹ  ⠀ l♡ve ⠀ site   ⠀ ̊ ִ ︵ (my name is Angelica, but i will change it to Manuela. i study at the colegio batista in buritis. im 15, i learned to use apps and websites that i didnt use in daily life, like gitHub, veritas. my goal is to have a large collection of many things, and to be a dancer.)૮꒰ 𓈒. ݂ .𓈒ྀི ꒱ა ⠀𓏼⠀gdragon ⠀𓈒 ݁ ♡  ݁ 
 ---
 pokemon, p1harmony, music, akb48, roblox,  𓆩^._.^𓆪
+https://pin.it/2jMqVgnOj
